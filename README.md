@@ -12,4 +12,4 @@
 - escucho **música** durante todo el día y mi cantante favorito es **Frank Ocean**🎧🎶.
 
 ## Foto de mi perrita
-![https://github.com/pdepviernestm/2024-presentacion-nicoScatolon/blob/main/IMG-20231104-WA0001.jpg?raw=true](https://github.com/pdepviernestm/2024-presentacion-nicoScatolon/blob/main/IMG-20231104-WA0001.jpg?raw=true)https://github.com/pdepviernestm/2024-presentacion-nicoScatolon/blob/main/IMG-20231104-WA0001.jpg?raw=true
+![https://github.com/pdepviernestm/2024-presentacion-nicoScatolon/blob/main/IMG-20231104-WA0001.jpg?raw=true](https://github.com/pdepviernestm/2024-presentacion-nicoScatolon/blob/main/IMG-20231104-WA0001.jpg?raw=true)
